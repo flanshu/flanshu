@@ -1,5 +1,5 @@
 ## Hi there 👋
-I am flanshu, currently doing my bachelors of technology in engineering physics, 
+I am Flanshu Kundara , currently doing my bachelors of technology in engineering physics, 
 
 
 <!--
